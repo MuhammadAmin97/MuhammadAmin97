@@ -1,5 +1,6 @@
 # 👋 Hi, I'm **Muhammad Amin**
 
+![17509623116076397476025365289901](https://github.com/user-attachments/assets/f1db3e01-035c-4b47-9969-a508bb4557e6)
 
 
 ## 🌐 **Data Analyst | Data Visualization Specialist | SQL Developer | Tech Blogger**
